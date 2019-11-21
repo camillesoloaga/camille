@@ -1,2 +1,0 @@
-# camillesoloaga
-My favorite places!
